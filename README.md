@@ -3,19 +3,19 @@
 <p align="center">
 ︵︵︵ ๑ ☁️ ๑ ︵︵︵
 <br>
-: : hi you can call me winter || spoken
+: : 𝚑𝚒 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚠𝚒𝚗𝚝𝚎𝚛 || 𝚜𝚙𝚘𝚔𝚎𝚗
 <br>
-u can c+h w/ me freely but I’m shy !
+𝚞 𝚌𝚊𝚗 𝚌+𝚑 𝚠/ 𝚖𝚎 𝚏𝚛𝚎𝚎𝚕𝚢 𝚋𝚞𝚝 𝙸’𝚖 𝚜𝚑𝚢 !
 <br>
 ⏝⏝⏝ ๑ ☁️ ๑ ⏝⏝⏝
 <br><br>
 ︶ ⏝ ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶
 <br>
-: : Idm what ships int unless weird ,
+: : 𝙸𝚍𝚖 𝚠𝚑𝚊𝚝 𝚜𝚑𝚒𝚙𝚜 𝚒𝚗𝚝 𝚞𝚗𝚕𝚎𝚜𝚜 𝚠𝚎𝚒𝚛𝚍 ,
 <br>
-but heavy dni if u get 2 comfy w/ it
+𝚋𝚞𝚝 𝚑𝚎𝚊𝚟𝚢 𝚍𝚗𝚒 𝚒𝚏 𝚞 𝚐𝚎𝚝 𝟸 𝚌𝚘𝚖𝚏𝚢 𝚠/ 𝚒𝚝
 <br><br>
-heavy iwc for lookout3d fans , potpc <br> likers , DW fans , vixuality likers <br> a bit of iwc 4 forsaken fans sorry <br> ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+𝚑𝚎𝚊𝚟𝚢 𝚒𝚠𝚌 𝚏𝚘𝚛 𝚕𝚘𝚘𝚔𝚘𝚞𝚝𝟹𝚍 𝚏𝚊𝚗𝚜 , 𝚙𝚘𝚝𝚙𝚌<br> likers , 𝙳𝚆 𝚏𝚊𝚗𝚜 , 𝚟𝚒𝚡𝚞𝚊𝚕𝚒𝚝𝚢 𝚕𝚒𝚔𝚎𝚛𝚜 <br> 𝚊 𝚋𝚒𝚝 𝚘𝚏 𝚒𝚠𝚌 𝟺 𝚏𝚘𝚛𝚜𝚊𝚔𝚎𝚗 𝚏𝚊𝚗𝚜 𝚜𝚘𝚛𝚛𝚢 <br> ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <br><br>
-ily @zipperblock !! U・x・U
+𝚒𝚕𝚢 @zipperblock !! U・x・U
 </p>
